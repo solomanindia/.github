@@ -1,4 +1,4 @@
-<a href="https://linkly.link/2SXtV" target="_blank" rel="noopener noreferrer">
+<a href="https://www.bg678m.com/#/pages/login/register?invitationCode=6623235099" target="_blank" rel="noopener noreferrer">
   <img src="https://i.imageupload.app/7fd2de362ed10fa75599.jpeg" alt="BDG Win Register" width="100%" height="auto" style="margin: 15px;" />
 </a>
 
