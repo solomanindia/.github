@@ -1,7 +1,7 @@
+<meta name="google-site-verification" content="Hk2Y9vRSAprVPfDFHxPgwYS2vCqLs9Rc02_J2sGDpXo"/>
 <a href="https://www.jalwagame8.com/#/register?invitationCode=434563938743" target="_blank" rel="noopener noreferrer">
   <img src="https://i.imageupload.app/7fd2de362ed10fa75599.jpeg" alt="BDG Win Register" width="100%" height="auto" style="margin: 15px;" />
 </a>
-<meta name="google-site-verification" content="Hk2Y9vRSAprVPfDFHxPgwYS2vCqLs9Rc02_J2sGDpXo" />
 
 
 # BDG WIN Register & Login 2026 – Use Invite Code **434563938743**  
